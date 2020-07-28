@@ -14,7 +14,7 @@
 > *Hackers **Decrypt** Encryted text to crack this World*
 
 
-But I think its not fair not to give a clue.;.....Read the sentence again and you got  the clue
+But I think its not fair not to give a clue.......Read the sentence again and **GOTCHA!!!** you got my name.
 
 DM me on [Instagram](www.instagram.com/tamizhan.ml) for anything!!!
 
