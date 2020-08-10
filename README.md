@@ -16,7 +16,7 @@
 
 But I think its not fair not to give a clue.......Read the sentence again and **GOTCHA!!!** you got my name.
 
-DM me on [Instagram](www.instagram.com/tamizhan.ml) for anything!!!
+DM me on www.instagram.com/tamizhan.ml) for anything!!!
 
 **H4CK1NG this World for Fun!!!**
                                      -- **Unknown ~~guy~~ Hacker :male_detective::male_detective:**
